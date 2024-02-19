@@ -1,4 +1,4 @@
-##In Election Year, Religious Issues and Opposition-Bashing Dominate Primetime TV News in India
+<h1>In Election Year, Religious Issues and Opposition-Bashing Dominate Primetime TV News in India</h1>
 
 It’s election year in the world’s largest democracy. But even as India readies itself for what is going to be the biggest parliamentary election ever in the history of the world in terms of the number of eligible voters, the Indian media is far from covering itself in glory.
 
