@@ -8,7 +8,7 @@ The constant focus on the Opposition is complemented only by how rare it is for 
 
 This correspondent analyzed 809 videos across eight different shows on Times Now, CNN-News18, NDTV 24x7 and India Today.
 
-<h2>The Proxy</h2>>
+<h2>The Proxy</h2>
 
 The YouTube playlists of each of the eight primetime shows was used as a proxy for the content on the show. 
 
